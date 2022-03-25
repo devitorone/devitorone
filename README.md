@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Vitor, a student. To learn, is to live.
+I'm Vitor, a student. To learn is to live.
 
 Also, I need a Job. Hire me, mf. I'll get it done.
 
