@@ -2,7 +2,7 @@
 
 I'm Vitor, a student. To learn is to live.
 
-Also, I need a Job. Hire me, mf. I'll get it done.
+Also, I need a Job. Hire me, mf. I dare you. I double dare you, mf!
 
 [![Vitor's GitHub stats](https://github-readme-stats.vercel.app/api?username=devitorone)](https://github.com/devitorone/github-readme-stats)
 
